@@ -1,0 +1,9 @@
+- Oi pessoinha, HaHaHa
+- Nao sei como voce chegou ate aqui, mas ja que chegou! Vou me apresentar
+- Meu nome e Allan, tenho 19 anos, atualmente estou estudando ao maximo, para me inserir da melhor forma da area de dev.
+- Procuro sempre enfrentar aquele medo inicial quando vemos um codigo complicado!!! HaHaHa
+- ajudando sempre quem precisar e tenta melhorar meu proprio eu a cada dia!
+- ------
+- Se voce for dar uma olhadinhas nos repositorios
+- me manda uma mensagem no Discord, e me da uma opiniao!!!
+- Discord: Sr_Koala#1462
